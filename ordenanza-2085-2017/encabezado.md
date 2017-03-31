@@ -1,0 +1,19 @@
+Ordenanza Nº2085-17
+Ordenanza Nº 2085-17
+Lobería, 03/03/2017
+VISTO:
+Los artículos 24, 25, 27 inciso 1, 10 y 17, y 77 inciso a de la Ley Orgánica de las Municipalidades y las Ordenanzas Nº 118-89 y 1251/06 Código de Planeamiento Urbano, Expte 4.066-1.595/17, Nota Nº 81-09-17, y
+CONSIDERANDO:
+QUE, por Resolución N° 515/2016 se creó el Registro Nacional de Salas de Extracción de Miel y Acopios Intermedios en el Sistema Único de Registros (SUR), en la órbita de la Dirección Nacional de Inocuidad y Calidad Agroalimentaria del SENASA,
+QUE, el objetivo de este Registro es disponer de información que contribuya a fortalecer el sistema de trazabilidad de la miel, según informaron desde el mismo organismo, asegurando que “con esta medida buscan generar transparencia en todos los eslabones de la cadena apícola. “Es una de las actividades que realizamos para mejorar el sistema y garantizar la trazabilidad de la miel a los destinos que se exportan”, profundizaron.
+QUE, de acuerdo a ésta normativa, por cada sala de Extracción de miel se deberá presentar un Formulario de Registro con la información completa. También es necesaria la constancia de la autorización otorgada por el Gobierno Provincial, en provincias con convenio apícola o por el SENASA en provincias sin convenio.
+QUE, para lograr la habilitación de los establecimientos en los que se extraiga miel para exportación (salas de extracción) es necesario presentar ante las autoridades correspondientes diferente tipo de documentación dentro de las cuales se incluye un certificado de radicación (uso de suelo) otorgado por el municipio tal como lo indica la normativa vigente.
+QUE, de acuerdo al art. 7º - Seccion II del Código de Planeamiento Urbano de Lobería, Ordenanza Nº 118-89, “será obligatorio requerir este certificado para usar una parcela, edificio, estructura, instalación o parte de ellos, con destino a cualquier uso de suelo”.
+QUE, si bien el plan de ordenamiento territorial vigente no clasifica a las “SALAS” en forma particular surge del análisis de las distintas resoluciones antes mencionadas en forma inequívoca su categorización como industrias inocuas tipología (4).
+QUE, como antecedente a esta problemática se dictó la ordenanza 1251-06, la cual preveía una autorización al D.E., para otorgar permiso de Uso de Suelo o Certificado de Radicación de Salas de Extracción de Miel con destino a exportación en el área urbana de nuestra localidad en zonas cuya actividad no está permitida, con carácter precario, por vía de excepción, por única vez y por un tiempo máximo de cuatro años.
+QUE, dichas autorizaciones de Uso de Suelo, otorgadas con carácter precario y por única vez, se encuentran vencidas, y ante los nuevos requerimientos de la resolución 515/16 del SENASA, por Expte 4.066-1.595/17, presentado por un vecino, surge la necesidad de un nuevo análisis de la situación,
+QUE, en nuestra localidad existe una situación de hecho donde funcionan salas de extracción de miel con destino a exportación cuya correspondiente habilitación emitida por los organismos competentes en zonas no aptas para dicho fin de acuerdo al código de planeamiento urbano vigente, se encuentra vencida.
+QUE, si bien funcionó durante un tiempo una Sala de Extracción de Miel Municipal, la misma, fue afectada por un temporal que destruyó sus instalaciones, quedando a resguardo la maquinaria y material que se pudo salvar, hasta tanto se logre un acuerdo con los productores sobre el destino y necesidad de la misma,
+QUE, hasta el 31 de Marzo de 2017 inclusive, las salas de extracción y acopio intermedio de miel pueden inscribirse en SENASA para continuar con el plan de obras propuesto para lograr la habilitación de dichas salas, condición necesaria para la comercialización de la miel.
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE DE LOBERIA, de acuerdo a las atribuciones que le son propias, aprueba la siguiente:
+ORDENANZA
