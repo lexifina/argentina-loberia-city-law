@@ -1,0 +1,2 @@
+ARTÍCULO 13°: MODIFÍCASE el Capítulo XII: DERECHOS A LOS ESPECTÁCULOS PÚBLICOS, artículo 20 de la Ordenanza Impositiva N° 2067/16, por el siguiente:
+“CAPÍTULO XII: DERECHOS A LOS ESPECTACULOS PUBLICOS

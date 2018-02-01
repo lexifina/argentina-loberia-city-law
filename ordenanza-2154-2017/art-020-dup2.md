@@ -1,0 +1,2 @@
+ARTICULO 20º.- MODIFÍCASE el Capítulo XIX: TASA POR SERVICIOS SANITARIOS, artículo 32 de la Ordenanza Impositiva N° 2067/16 en el siguiente:
+“CAPITULO XIX: TASA POR SERVICIOS SANITARIOS

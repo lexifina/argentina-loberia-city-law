@@ -1,0 +1,2 @@
+ARTICULO 21º.- MODIFÍCASE el Capítulo XX: MULTAS POR CONTRAVENCIONES, artículo 35 de la Ordenanza Impositiva N° 2067/16 en el siguiente:
+“CAPITULO XX: MULTAS POR CONTRAVENCIONES
