@@ -1,0 +1,13 @@
+Ordenanza Nº2235-18
+Ordenanza Nº 2235-18
+Lobería, 06/09/2018
+VISTO:
+Lo dispuesto los artículos 107, 108 inciso 17, los artículos 140 y 141 del Reglamento de Contabilidad y Disposiciones de Administración para las Municipalidades de la Provincia de Buenos Aires y el Expediente Administrativo N° 4066-2445/18 caratulado: “Reconocimiento de Deuda – Diferencia Liquidación Adicional por título terciario”, y;
+CONSIDERANDO:
+QUE, por medio de la Ordenanza 1973 se estableció un nuevo régimen para los agentes municipales, en el cual se reconoció por primera vez el pago de un adicional por título terciario, mayor al porcentaje de título secundario;
+QUE, a través de la Nota N° 27.944, presentada el día 15 de mayo de 2018, los Agentes Municipales Cecilia Elisabet Chisté, Legajo N° 1025; Mirta Soledad Bengochea, Legajo N° 1170; Ana María Sammaroni. Legajo N° 1260; María Cristina Goyheche, Legajo N° 1452; Miriam Beatriz Ale, Legajo N° 1502; Gabriela María Julia Lecarotz, Legajo N° 1603; Mabel Alicia Querán, Legajo N° 1757; Rosa Ester Barrionuevo, Legajo N° 1848; Mariana Andrea Leoni, Legajo N° 1866; Natalia Paola Tellechea, Legajo N° 10221; Neli Aurora Marcos, Legajo N° 10247; Sandra Viviana Castillo, Legajo N° 10299; Natalí Iriarte, Legajo N° 10249; Victoria Catalina Delgado, Legajo N° 10677; Daniela Virginia Peirano, Legajo N° 1605 y Natalia Araceli Berrios, Legajo N° 1608, reclaman el pago de la diferencia entre el adicional por título secundario abonado en el año 2017 y el adicional por título terciario/universitario que efectivamente correspondía;
+QUE, el Departamento Ejecutivo no podrá reconocer deudas de ejercicios anteriores no registradas en la contabilidad municipal, sin previa comprobación, y en virtud de ello se forma el Expediente indicado ut supra, a los efectos de determinar la realidad de lo reclamado;
+QUE, del análisis efectuado por las dependencias municipales correspondientes, surge que corresponde hacer lugar al mismo, en virtud de haberse confirmado la existencia de la deuda mencionada, motivo por el cual se procede a dar vista de las actuaciones administrativas por el plazo de ley, notificándose personalmente de las mismas el Intendente Juan José Fioramonti y prestando conformidad con lo actuado, solicitando finalmente se reconozca la deuda reclamada;
+QUE, cumplida la etapa administrativa respectiva, la Asesoría Letrada aconsejó –luego de la compulsa realizada- que se eleve el Expediente de referencia al Honorable Concejo Deliberante a efectos que analice si corresponde o no autorizar a registrar la deuda y, eventualmente, efectuar el pago por la suma comprobada.
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE DE LOBERIA, en uso de sus atribuciones dicta la siguiente:
+ORDENANZA
