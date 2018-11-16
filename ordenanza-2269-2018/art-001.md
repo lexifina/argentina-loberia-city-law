@@ -1,0 +1,1 @@
+ARTICULO 1°.- DECLÁRASE de INTERÉS MUNICIPAL el “PRIMER FESTIVAL POR LA DIVERSIDAD” organizado por Orgullo Colectivo de Géneros y Diversidad de Lobería que se desarrollará en la Plaza Mitre el día 10 de Noviembre del corriente.-

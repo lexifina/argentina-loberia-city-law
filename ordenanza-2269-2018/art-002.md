@@ -1,0 +1,1 @@
+ARTICULO 2°.- Autorizase a integrantes de Orgullo Colectivo de Géneros y Diversidad de Lobería el uso del espacio público de la Plaza Mitre el día 10 de Noviembre de 2018 de 14 a 21 hs. para realizar el Primer Festival por la Diversidad.-
