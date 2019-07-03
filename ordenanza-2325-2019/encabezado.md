@@ -1,0 +1,15 @@
+Ordenanza Nº2325-19
+Ordenanza Nº 2325-19
+Lobería, 13/06/2019
+VISTO:
+Los artículos 107 y 108 de la Ley Orgánica de las Municipalidades, las Ordenanzas 41/92, 558/98, 632/00 y 2206/18, las leyes 26.182, 10.428, 11.215 y 13.210, Resoluciones 1444/00 y 4455/04 del IVBA, el Decreto Nº 1.735/18, la nota Nº 42.237/19; y
+CONSIDERANDO:
+QUE, el Gobierno Local en el marco del Programa “Techo Digno”, implementado por el Ministerio del Interior Obras Públicas y Vivienda de la Nación, Secretaria de Vivienda y Hábitat, con fiscalización del Instituto de la Vivienda de la Provincia de Buenos Aires IVBA, lleva adelante la construcción de 90 unidades habitacionales en la Ciudad de Lobería;
+QUE, de acuerdo a lo informado por la Secretaria de Infraestructura, Obras y Servicios Públicos el avance de construcción prevé la culminación del denominado emplazamiento 4 de la referida operatoria, con un total de ocho (08) viviendas en junio del corriente;
+QUE, la actual administración llevó a cabo el procedimiento de recepción y recolección de información de demanda de vivienda que gestiona el Registro Único a través de un sistema que apunta a dar transparencia a la implementación del mismo. En tal sentido la Oficina de Vivienda, que se puso en marcha, tiene el objetivo de centralizar, actualizar y unificar dicha demanda del Partido de Lobería, motivo por el que se asignó un lugar físico, equipamiento informático, mobiliario y recursos humanos;
+QUE, de acuerdo con la legislación vigente se hace necesario elaborar los listados de pre adjudicatarios titulares y suplentes a fin de la publicación del mismo y el inicio de la recepción de impugnaciones y oposición en los plazos legales, correspondientes, sin perjuicio de que los aspirantes ya fueron suplentes en las anteriores adjudicaciones de viviendas realizadas en el año en curso;
+QUE, para la elaboración de los mencionados listados la Dirección de Desarrollo Social, a través de la Oficina de Vivienda ha tenido en cuenta los diferentes cupos determinados en la legislación actual, a saber: 1.- Familias en las que al menos uno de los integrantes sea una persona con discapacidad, acreditada a través de CUD. 2.- Ex Combatientes de Malvinas. 3.- Mujeres Jefas de Familia. 4.- Personal de la Policía Comunal de Seguridad y la nómina de catorce (14) suplentes aprobada por el Decreto Nº 1.735/18 a través del cual se otorgaron treinta (30) viviendas de este programa;
+QUE, a los efectos de dar continuidad a la tramitación se dispuso la publicación en los medios de difusión y Boletín Oficial, del presente listado, estableciendo además los plazos de recepción de impugnaciones y resolución de las mismas, habiendo vencido los mismos sin que exista objeción alguna;
+QUE, es de destacar que el objetivo del procedimiento a ejecutar es dar absolutas garantías a los vecinos de Lobería, garantizando transparencia y objetividad en el proceso de selección, a fin de lograr que los destinatarios finales sean sujetos plenos en ese derecho;
+POR ELLO, EL H. CONCEJO DELIBERANTE DE LOBERIA, eleva la siguiente:
+ORDENANZA
