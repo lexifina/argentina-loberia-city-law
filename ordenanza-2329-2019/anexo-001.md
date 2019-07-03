@@ -1,0 +1,1 @@
+Honorable Concejo Deliberante de Lobería ANEXO I DE LA ORDENANZA Nº 2329-19 Honorable Concejo Deliberante de Lobería Honorable Concejo Deliberante de Lobería Honorable Concejo Deliberante de Lobería Honorable Concejo Deliberante de Lobería Honorable Concejo Deliberante de Lobería
