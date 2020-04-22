@@ -1,0 +1,17 @@
+Ordenanza Nº2384-20
+Ordenanza Nº 2384-20
+Lobería, 08/04/2020
+VISTO:
+Lo dispuesto por los artículos 5, 123 y 128 de la Constitución Nacional, el artículo 190 y siguientes de la Constitución de la Provincia de Buenos Aires, los artículos 24, 25, 26, 27 107, 108, 119 inc b) de la Ley Orgánica de las Municipalidades, el Decreto del P.E.N. Nº 297/20, los Decretos del Departamento Ejecutivo Municipal Nros 462/20, 489/20, 496/20, 500/20 y 502/20; y
+CONSIDERANDO:
+QUE, a través del Decreto Nº 297/20, el Presidente de la Nación Argentina, en acuerdo general de ministros estableció para todas las personas que habitan en el país o se encuentren en él en forma temporaria, la medida de “aislamiento social, preventivo y obligatorio”, a fin de proteger la salud pública, lo que constituye una obligación inalienable, medida adoptada en el marco de la declaración de pandemia emitida por la Organización Mundial de la Salud (OMS), la emergencia sanitaria ampliada por Decreto Nacional 260/20 y su modificatorio, en atención a la evolución de la situación epidemiológica, con relación al COVID-19 (coronavirus);
+QUE, ante ese estado de cosas el Departamento Ejecutivo realizó un sinnúmero de acciones tendientes a mitigar los efectos de la pandemia, tanto desde el punto de vista sanitario como también social y económico, para asegurar el bienestar de los vecinos del distrito;
+QUE, en tal sentido y en concordancia con lo expuesto este Departamento Ejecutivo dictó los Decretos Nros. 462/20, 489/20, 496/20, 500/20, 502/20 y 541/20;
+QUE, el Decreto 462 del 12 de marzo establece entre otras medidas, la constitución del Comité de Crisis COVID-19, la suspensión de actos masivos y de los procedimientos administrativos que en su consecuencia se hubieren iniciado;
+QUE, por el acto administrativo 489 se establece la prohibición de permanencia en espacios públicos, cierre de lugares de concurrencia y permanencia de personas, autorización a brindar servicios de envío a domicilio, eximición del pago de tasa por servicios a la actividad comercial, industrial, profesional y de servicios, además de brindar recomendaciones a la población para tomar recaudos y así evitar la propagación del virus, horarios de atención de comercios y/o servicios, y la realización de gastos imprevistos e indispensables, aun cuando el concepto de ellos no esté aprobado en el presupuesto general del ejercicio 2020 o exceda el monto de las partidas autorizadas, tal como lo establece el Artículo 119 inc. b de la Ley Orgánica de las Municipalidades a fin de dar cumplimiento a lo establecido en el presente, entre otras regulaciones;
+QUE, por el Decreto 496 se convoca al personal municipal necesario para llevar a cabo las prestaciones esenciales establecidas en el art. 6 del Decreto Nacional Nº 297;
+QUE, el Decreto 500/20 limitó el horario de los comercios esenciales anunciado por el toque de sirena a los efectos de evitar la propagación del virus, disponiendo también el cierre temporario de la calle Bisciotti en virtud de mejorar el control de ingresos de vehículos provenientes de la ruta 227;
+QUE, el Decreto 541 adhirió al Decreto Nacional 331, ampliando el plazo de esta emergencia hasta el 12 de abril del corriente año inclusive;
+QUE, en virtud de la urgencia de la situación, los referidos actos administrativos se dictaron ad referéndum de ese Honorable Cuerpo por lo que resulta necesario dar cuenta de lo actuado para su convalidación;
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE DE LOBERIA, eleva la siguiente:
+ORDENANZA
