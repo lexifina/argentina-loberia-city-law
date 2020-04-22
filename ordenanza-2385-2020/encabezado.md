@@ -1,0 +1,19 @@
+Ordenanza Nº2385-20
+Ordenanza Nº 2385-20
+Lobería, 08/04/2020
+VISTO:
+Lo dispuesto por los artículos 5, 123 y 128 de la Constitución Nacional, el artículo 190 y siguientes de la Constitución de la Provincia de Buenos Aires, los artículos 24, 25, 26, 27 107, 108, 119 inc b) de la Ley Orgánica de las Municipalidades, el Decreto del P.E.N. Nº 297/20 y N° 331/20, y
+CONSIDERANDO:
+QUE, a través del Decreto Nº 297/20, el Presidente de la Nación Argentina, en acuerdo general de ministros estableció para todas las personas que habitan en el país o se encuentren en él en forma temporaria, la medida de “aislamiento social, preventivo y obligatorio”, a fin de proteger la salud pública, lo que constituye una obligación inalienable, medida prorrogada por el Decreto 331/20;
+QUE, ante ese estado de cosas el Departamento Ejecutivo realizó un sinnúmero de acciones tendientes a mitigar los efectos de la pandemia, tanto desde el punto de vista sanitario, social, económico, para asegurar el bienestar de los vecinos del distrito;
+QUE, amén de la eximición del pago de la tasa por servicios a la actividad comercial, industrial, profesional y de servicios, establecida por medio del Decreto 489/20 sujeto a convalidación por ese Honorable Cuerpo Deliberativo, es necesario generar acciones de apoyo concreto a la economía local;
+QUE, las actividades comerciales, productivas y de servicios del Partido de Lobería son generadoras de puestos de trabajo a nivel local, siendo un sostén fundamental de la economía del distrito, varias de las cuales se han visto afectadas por la pandemia del COVID-19,
+QUE, los efectos generados por el Aislamiento Social Preventivo y Obligatorio, decreto 297/2020 del Gobierno Nacional, han producido un fuerte impacto en ciertas actividades vinculadas a los servicios gastronómicos, hoteleros y comerciales;
+QUE, desde el accionar municipal se prevé acompañar con medidas locales tendientes a sostener y aliviar estas actividades afectadas del comercio local, además de ir cumpliendo lo más ajustadamente posible con los proveedores locales, con cronogramas estipulados previamente, dado el impacto económico que ha generado esta crisis,
+QUE, es intención de la gestión municipal acompañar a los vecinos y comerciantes loberenses, a través de la Dirección de Desarrollo Local, la OMIC y otras dependencias municipales, en la tramitación de reclamos, asesoramiento crediticio y técnico para hacer frente a esta nueva situación de aislamiento que se extenderá un tiempo más,
+QUE, tanto desde el estado nacional como provincial se están implementando medidas que permiten bajar el impacto negativo de la inactividad económica derivada de la pandemia del COVID-19, las cuales se deben trabajar, difundiendo, publicitando y asesorando desde distintas áreas municipales, para aliviar la situación social, además de disminuir la carga impositiva y reducir el peso de los costos fijos en las actividades más afectadas,
+QUE, es necesario contar en esta emergencia con un marco normativo local dirigido a sostener, con distintos tipos de asistencias, las actividades de las pequeñas y medianas empresas (PYMES) más afectadas por la pandemia de Lobería;
+QUE, son notorias las dificultades que sufren muchas pequeñas unidades productivas del territorio local para acceder a distintos tipos de asistencias, incluyendo las financieras en función de no poder cumplir con todos los requisitos que suelen exigirse por diversas operatorias de crédito y esta situación extraordinaria amerita implementar desde lo local políticas activas excepcionales;
+QUE, es posible desde la administración municipal colaborar en esta emergencia, implementando algunas medidas que permitan ayudar a sostener la actividad económica más críticas, además de colaborar con sostener las situaciones sociales y laborales más vulnerables.
+POR ELLO, EL HONORABLE CONCEJO DELIBERANTE DE LOBERIA, eleva la siguiente:
+ORDENANZA
