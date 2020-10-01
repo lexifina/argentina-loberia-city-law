@@ -1,0 +1,22 @@
+Ordenanza Nº2434-20
+Ordenanza Nº 2434-20
+Lobería, 11/09/2020
+VISTO:
+Lo dispuesto en los artículos 27 inciso 2), 55, 77 inciso a), 230 y concordantes de la Ley Orgánica de las Municipalidades, y
+CONSIDERANDO:
+QUE, históricamente desde el regreso de la etapa democrática en 1983 ha sido de interés municipal y las distintas gestiones de gobierno destinar fondos públicos para desarrollar la actividad turística en el distrito y en particular generar mejoras en la zona del balneario de Arenas Verdes;
+QUE, durante el año 1986 se iniciaron conversaciones con los principales propietarios de los lotes del lugar, para poder adquirir por el estado Municipal un predio de aproximadamente 4 Has. en el núcleo central del balneario, las mismas lograron concretarse con la compra de una manzana el 6 de enero de 1987;
+QUE, dicho lote cuenta con un médano importante y una variada vegetación que lo hace un lugar muy atractivo para desarrollar actividades de camping, paseos y vida al aire libre; QUE, mediante la Ordenanza Nº 76/87 se autorizó al Departamento Ejecutivo la construcción de un complejo en el balneario Arenas Verdes, en el lote ubicado en la Circunscripción VII sección U Manzanas 57 a y b, donde se llevaron a cabo Sanitarios, duchas y otras dependencias que permitieron el inicio de un desarrollo turístico más estable y planificado en el lugar;
+QUE, en años posteriores se fueron ejecutando obras adicionales para servicios de salud y vivienda para agentes municipales en el mismo predio, completando la iniciativa de dar infraestructura al balneario;
+QUE, el destino de la mayor parte de la superficie del lote fue para establecer un camping que permitiera el acampe y estadía de turistas con servicios básicos en el balneario, otorgándose su explotación a privados en distintos procesos de concesiones con licitación a lo largo de los años;
+QUE, el gobierno municipal construyó en distintas etapas una base de campamento adicional ubicada en otro predio de dominio municipal, la cual fue dotada de infraestructura de servicios y obras complementarias como baños, salón de usos múltiples, lugar que cuenta con potencial de ser ampliado y mejorado;
+QUE, ambos predios se pueden complementar en sus actividades para dar un servicio integral a los visitantes;
+QUE, es voluntad del Departamento Ejecutivo respetar el espíritu que dio origen a la inversión inicial y las posteriores en función de generar zonas de acampe con servicios adecuados, pero entendemos que además se puede dar un mejor aprovechamiento a la Manzana 57 comprada inicialmente, creando un Parque Público Abierto, para circulación peatonal, que permita a todos los visitantes de Arenas Verdes aprovechar este espacio atractivo de sombra, desniveles, arboledas para disfrute del aire libre, con senderos, bancos y mesas, no permitiendo fogatas, reservando un espacio limitado para artesanos y elaboradores locales, con señalización y medidas de seguridad para preservar la biodiversidad del lugar;
+QUE, como se muestra en el plano adjunto del Anexo I, con una superficie aproximada de 0,8 Has. se puede delimitar este espacio para el Parque Público, dejando para la zona de camping el resto de la superficie para acampe y los dormis existentes, aumentando la zona de acampe con servicios en la base de campamento, en forma compensatoria a la reducción de superficie en el actual camping;
+QUE, de esta manera se puede sumar un área mayor en la base de acampe y lotes aledaños dotándola de servicios por un lado y por otro sumar un Paseo Publico de singular belleza para aprovechamiento de todos los visitantes, cuestión que hasta hoy está restringida solo a los acampantes del lugar; Honorable Concejo Deliberante de Lobería;
+QUE, además vemos necesario generar más ofertas gastronómicas en el lugar que permitan diversificar los servicios y alternativas para los turistas, lo cual se puede lograr separando para ser concesionado el local destinado a Resto-Bar como una Unidad independiente a ser explotada;
+QUE, todas estas iniciativas deben mantener una relación armónica con el sentido agreste del lugar, el espíritu de la ley de Paisaje Protegido, cuidando el medio ambiente, preservando la biodiversidad, fomentando el uso de energías alternativas y con mínimo impacto en su desarrollo;
+QUE, oportunamente el Departamento Ejecutivo evaluará las propuestas de explotación para cada una de las unidades citadas,
+ORDENANZA
+POR ELLO, EL H. CONCEJO DELIBERANTE DE LOBERIA, de acuerdo a sus atribuciones, aprueba la siguiente:
+O R D E N A N Z A
