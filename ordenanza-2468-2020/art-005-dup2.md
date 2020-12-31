@@ -1,0 +1,3 @@
+ARTÍCULO 5: Por el Servicio de Conservación de la Vía Pública, de acuerdo con lo prescripto en la Ordenanza Fiscal, se fija un Tasa Anual, en las siguientes formas e importes:
+a) Inmuebles con frente a calles pavimentadas $ 17,00 b) Inmuebles con frente a calles de tierra: b-1) Por cada lote de hasta 600 mts.2 de superficie $ 193,00 b-2) Por cada lote de 601 hasta 1.000 mts. de superficie $ 320,00 b-3)Por cada lote de 1.001 hasta 2.000 mts. de superficie $ 650,00 b-4) Por cada lote de 2.001 hasta 3.000 mts. de superficie $ 970,00 b-5) Por cada lote de 3.001 hasta 4.000 mts. de superficie $ 1300,00 b-6) Por cada lote de más de 4.000 mts. de superficie $ 1630,00
+CAPITULO III: TASA POR SERVICIOS ESPECIALES DE LIMPIEZA E HIGIENE Y USO DE MAQUINARIAS VIALES

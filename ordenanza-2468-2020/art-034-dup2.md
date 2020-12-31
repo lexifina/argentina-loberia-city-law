@@ -1,0 +1,1 @@
+ARTICULO 34.- Sin perjuicio de las penas que establecen las Ordenanzas y las Leyes en vigencia y las que en lo sucesivo se dictaren, se consideraran contravenciones sujetas al pago de multas, las que se establecen en los artículos siguientes, y se abonaran los montos que establezca la Ordenanza Impositiva.
