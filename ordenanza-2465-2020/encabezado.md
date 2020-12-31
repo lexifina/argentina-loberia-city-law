@@ -1,0 +1,18 @@
+Ordenanza Nº2465-20
+Ordenanza Nº 2465-20
+Lobería, 18/12/2020
+VISTO:
+Los artículos 24, 25, 29, 226, 227, 228, y 229 de la Ley Orgánica de las Municipalidades y las Ordenanza Fiscal e Impositiva y Nº 251-96, y sus modificatorias Nº 700/00, Nº 820/02, 880/04 y 1.890/14, las notas 8.726/20 y 8988/20 y
+CONSIDERANDO:
+QUE, la Ordenanza Nº 251-96 dispuso oportunamente la creación de la Contribución Especial Fondo Solidario, con el objetivo de asistir económicamente la tarea que en las áreas de educación, salud, minoridad y discapacidad vienen desarrollando diversas instituciones comunitarias de Bien Público de nuestro Distrito;
+QUE, desde la sanción de la Ordenanza que lo creó, la evolución de la situación determinó la necesidad de efectuar cambios en la distribución porcentual asignada a cada una de las instituciones;
+QUE, a modo de ejemplo puede citarse la situación del Centro de Estudiantes Loberenses en La Plata (CEUL), ya que el mismo fue uno de los beneficiarios iniciales, afectando el aporte en primera instancia para el alquiler de un inmueble y posteriormente la adquisición de su propia sede, lo que posibilito a una importante cantidad de jóvenes Loberenses acceder a cursar sus estudios universitarios, logro conjunto de las sucesivas comisiones de la institución comprometida con la problemática y del Pueblo de Lobería a través del Estado Municipal;
+QUE, mediante nota 8.988/20 la Asociación “General Mitre” solicita se incremente el porcentaje del Fondo asignado, atento a la situación económica por la que atraviesa la institución, que lleva adelante una tarea fundamental de acompañamiento a niños y niñas integrantes de núcleos familiares con necesidades básicas insatisfechas. Lo que permite a sus padres abocarse a las tareas diarias contando con la tranquilidad de la asistencia, contención, diferentes talleres y actividades recreativas en el ámbito de la institución a lo largo de la jornada, contado con un medio propio de traslado desde y hacia el domicilio de los mismos;
+QUE, la Asociación de Familiares de Personas con Capacidades Diferentes de Lobería “Manitos de Luz”, se ha conformado con el objetivo de llevar adelante la tarea de asistir y acompañar a personas con Capacidades Diferentes, habiendo cedido oportunamente el Gobierno Municipal un predio en el cual construye la sede donde desarrollara sus actividades. Siendo de destacar el impulso y dedicación que los integrantes de la Asociación ponen de manifiesto para lograr la pronta puesta en marcha del proyecto;
+QUE, por nota 8.726/20 solicitan su inclusión dentro de las instituciones que reciben aportes del mencionado Fondo Solidario;
+QUE, la actual Ordenanza vigente en su artículo 4º dispone asignar un 15% para el fondo Municipal de Becas para Hogares Sustitutos. Destinándose ese monto a los Hogares “Nuevo Amanecer” y “Gambeteando Vientos”;
+QUE, es voluntad del Departamento Ejecutivo proponer una modificación en esa distribución. Manteniendo la asistencia del mencionado Hogar “Nuevo Amanecer” y desafectando el porcentaje destinado a “Gambeteando Vientos”, siendo importante destacar que de ningún modo tal determinación significa disminuir recursos a las necesidades de esa institución, toda vez que la misma cuenta con recursos presupuestarios municipales que cubren todos los gastos de funcionamiento, personal, asistencia de los jóvenes y actividades de promoción y protección de manera plena;
+QUE, en síntesis la readecuación de porcentajes permitirá lograr una efectiva y justa distribución del Fondo, sin generar ningún tipo de inconveniente a las entidades incluidas previamente;
+POR ELLO, EL H. CONCEJO DELIBERANTE DE LOBERIA, de acuerdo a sus facultades,
+aprueba la siguiente:
+ORDENANZA
