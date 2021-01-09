@@ -1,0 +1,4 @@
+ARTÍCULO 36: Se establece la Contribución Especial Permanente para el Fondo Solidario con los siguientes valores: a) Para inmuebles rurales será de pesos diecinueve con 53/100 ($ 19,53.-) por hectárea y por año y se liquidará juntamente con la Tasa por Reparación, Conservación y Mejorado de la Red Vial Municipal, prorrateándose por partes iguales en cada cuota que se emita en el calendario fiscal anual. b) Para los inmuebles urbanos se determinan los siguientes valores, de acuerdo con el valor básico para la Tasa por Servicios Sanitarios,
+Valor de hasta $500 $ 335,00.- Valor de 501 a 1000 $ 570,00.- Valor de 1001 a 1500 $ 900,00.- Valor de 1501 a 2000 $ 1.130,00.- Valor de más de 2001 $ 1.350,00.-
+Se liquidará juntamente con la Tasa por Servicios Sanitarios y se prorrateará por partes iguales en cada cuota que se emita en el calendario fiscal anual.
+CAPITULO XXII: TASA POR SERVICIOS DE REMOCION, ACARREO Y ESTADIA

@@ -1,0 +1,1 @@
+ARTICULO 19.- Por los espectáculos públicos conforme a lo establecido en la Ordenanza Fiscal, se abonara la tasa siguiente: El cinco por ciento (5 %) del valor de las entradas. Cuando se trate de espectáculos con fines de lucro en los que la entrada sea libre, se tomará como base imponible lo efectivamente recaudado por el desarrollo de la actividad.
