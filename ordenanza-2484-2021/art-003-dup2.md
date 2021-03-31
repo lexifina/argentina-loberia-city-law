@@ -1,0 +1,4 @@
+ARTÍCULO 3º Notifíquese, tomen conocimiento Asesoría Letrada, Contaduría y Honorable Concejo Deliberante. Dése al Registro de Decretos, cumplido ARCHÍVESE.
+PABLO J. BARRENA JUAN JOSÉ FIORAMONTI
+SECRETARIO DE GOBIERNO INTENDENTE MUNICIPAL
+DECRETO Nº 1.291-20
