@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Impútese a la Partida: “111011000 Secretaría de Salud y Desarrollo Social – 29 Dirección de Desarrollo Social – 01 Conducción y Administración – 5.1.4.0. Ayudas sociales a personas – 132 de origen provincial” del Presupuesto de Gastos vigente.
