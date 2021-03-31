@@ -1,0 +1,1 @@
+ARTÍCULO 3° Impútese a la Partida: “1110101000 Unidad Intendente – 19 Asistencia a Instituciones – 01 Subsidios al Sector Privado – 5.2.4.0. Transferencias a otras instituciones culturales y sociales sin fines de lucro” del Presupuesto de Gastos vigente.
