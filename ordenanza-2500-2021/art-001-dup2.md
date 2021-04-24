@@ -1,0 +1,1 @@
+ARTÍCULO 1.- REGÍSTRASE, Ad-Referendum del Honorable Concejo Deliberante, el CONVENIO celebrado entre la Municipalidad de Lobería, representada por el Intendente Municipal JUAN JOSÉ FIORAMONTI y la FUNDACIÓN INECO, representada por su presidenta Dra. TERESA TORRALVA, cuyoobjetivo es prestarse colaboración en el ámbito de la universidad de Lobería.
