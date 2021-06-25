@@ -1,0 +1,1 @@
+ARTÍCULO 3º Los gastos que demande la aplicación del Contrato, serán imputados a la Partida: “111011000 Secretaría de Salud y Desarrollo Social – 1 Conducción y Administración – 3.4.5.0. Capacitación” del Presupuesto de Gastos vigente.
