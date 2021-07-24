@@ -1,0 +1,29 @@
+Ordenanza Nº2534-21
+Ordenanza Nº 2534-21
+Lobería, 12/07/2021
+VISTO:
+Lo dispuesto en los artículos 24, 27, 107 y 108 de la Ley Orgánica de las Municipalidades, Ley 18284/69 Código Alimentario Argentino, Ley 24467/95 de la Pequeña y Mediana Empresa, Ley 25300/2000 de Fomento a la Micro, Pequeña y Mediana Empresa, sus decretos reglamentarios y actualizaciones, Decreto 2550/12 de Estímulo al Crecimiento de las Micro, Pequeña y Medianas Empresas, Resoluciones Nros. 220/2019 y 19/2021 de la Secretaría de Emprendedores y de la Pequeña y Mediana Empresa, dependiente del Ministerio de Producción y Trabajo de la Nación, la Ordenanza Municipal N° 1.038/05 de Control Bromatológico; y
+CONSIDERANDO:
+QUE, mediante Ley 18284 se declara vigente en todo el territorio de la República Argentina, con la denominación de Código Alimentario Argentino, las disposiciones higiénico-sanitarias, bromatológicas y de identificación comercial del Reglamento Alimentario;
+QUE, la Ley 24467 tiene por objeto promover el crecimiento y desarrollo de las pequeñas y medianas empresas impulsando para ello políticas de alcance general a través de la creación de nuevos instrumentos de apoyo y la consolidación de los ya existentes.
+QUE, la misma ley 24467 encomienda a la autoridad de aplicación a definir las características de las empresas que serán consideradas micro, pequeñas y medianas empresas, pudiendo contemplar, cuando así se justificare, las especificidades propias de los distintos sectores y regiones del país y con base en alguno, algunos o todos los siguientes atributos de las mismas o sus equivalentes, personal ocupado, valor de las ventas y valor de los activos aplicados al proceso productivo;
+QUE, la autoridad de aplicación revisará anualmente la definición de micro, pequeña y mediana empresa a fin de actualizar los parámetros y especificidades contempladas en la definición adoptada;
+QUE, la Ley 25300 tiene por objeto promover el crecimiento y desarrollo de las micro, pequeñas y medianas empresas impulsando para ello políticas de alcance general a través de la creación de nuevos instrumentos de apoyo y la consolidación de los ya existentes.
+QUE, a través del Decreto 2550 se crea el Programa de Estímulo al Crecimiento de las Micro, Pequeñas y Medianas Empresas, con el objeto de mejorar las condiciones de acceso al crédito del sector, pudiendo, a su vez, suscribir Convenios con la Autoridad de Aplicación, las Entidades del Sector Público Nacional, Provincial y Municipal que otorguen financiamiento al sector.
+QUE, por Resolución 220/2019 se creó el Registro de Empresas MiPyMES a efectos que las Micro, Pequeñas y Medianas Empresas que cumplan con los requisitos establecidos puedan acceder a los beneficios creados por Ley 24467;
+QUE, por Resolución 19/2021 se creó el Legajo Único Económico y Financiero dentro del Registro de empresas MiPyMEs y se efectuó la actualización anual de los valores que las categorizan:
+QUE, la existencia de numerosos micros emprendedores locales, dedicados a la elaboración de alimentos en condiciones precarias, en tanto producen en lugares no habilitados;
+QUE, actualmente, los requisitos que deben cumplir para habilitar los lugares donde elaboran los pequeños emprendedores son los mismos que se piden a una gran empresa y están fijados por el Código Alimentario Argentino (CAA);
+QUE, los requisitos edilicios planteados en el CAA son difíciles de cumplir por
+los pequeños emprendedores, por lo cual muchos trabajan de forma clandestina, no informando de su actividad a ninguna autoridad, operando en condiciones que no pueden ser controladas por los órganos de bromatología municipales, ya que muchas de ellas funcionan en domicilios particulares;
+QUE, en muchos casos, estos emprendedores carecen de conocimientos del aporte de la tecnología, o tienen dificultad para acceder a la asistencia técnica y al conocimiento de la normativa vigente que garantiza la aptitud y la seguridad del producto, con el consecuente riesgo de aparición de Enfermedades Transmitidas por Alimentos (ETAs);
+QUE, a la hora de comercializar, estos emprendedores se enfrentan a la imposibilidad de operar en el ámbito legal, puesto que para la consolidación de dichos emprendimientos resulta indispensable lograr la formalización de los mismos;
+QUE, el ámbito propuesto constituirá un aporte concreto y propicio para lograr el objetivo de dotarle valor agregado a los productos locales, eje básico de toda política de desarrollo local;
+QUE, desde este Departamento Ejecutivo se planteó en la propuesta de gobierno para 2019-2023 la construcción de una sala comunitaria de elaboración de alimentos;
+QUE, esta comuna cuenta con un inmueble donde funcionó la Sociedad de Beneficencia Árabe Sirio Libanesa, espacio propicio para construir las instalaciones con ese destino;
+QUE, en dicha dependencia se facilitará la asistencia técnica y capacitación a los pequeños productores de alimentos en Manipulación Higiénica de Alimentos y en Buenas Prácticas de Manufactura, realizará los análisis fisicoquímicos y microbiológicos necesarios y asistirá a cada emprendedor en la realización de los protocolos de elaboración de sus productos con el fin de estandarizar los procesos;
+QUE, muchas de estas unidades económicas hoy informales, son potenciales fuentes de empleo y autoempleo;
+QUE, además de la actividad propuesta a desarrollar en la sala se pretende adicionar un carácter formativo al resto de los emprendedores para que la misma sea visitada y se programen tareas permanentes de capacitación y fomento de las buenas prácticas;
+QUE, para llevar a cabo adecuadamente las tareas correspondientes se contrató un profesional autorizado que se hará cargo de la Dirección Técnica del servicio;
+POR ELLO, EL H. CONCEJO DELIBERANTE DE LOBERIA, de acuerdo a sus facultades, aprueba la siguiente:
+ORDENANZA
