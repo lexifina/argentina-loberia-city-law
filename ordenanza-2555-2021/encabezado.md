@@ -1,0 +1,22 @@
+Ordenanza Nº2555-21
+Ordenanza Nº 2555-21
+Lobería, 12/10/2021
+VISTO:
+Lo dispuesto por los Artículos 24, 25, 77 inciso a), 53, y concordantes de la Ley Orgánica Municipal, Nota Nº 9088-21, y
+CONSIDERANDO:
+QUE, mediante Nota Nº 9088-21, la Dirección General de Cultura y Educación, el CEF Nº 43 de Loberia, Jefatura Regional 20, Jefatura Distrital e Inspección de Educación Física, con el aval de la Federación Argentina de Deportes para personas con Parálisis Cerebral (FADEPAC), solicitan se Declare de Interés Municipal el 5º FESTIVAL DE ATLETISMO INCLUSIVO,
+QUE, es una propuesta destinada a la sociedad en su conjunto y se posiciona en el conocimiento de la diversidad corporal y motriz para su desarrollo pleno,
+QUE, dando continuidad a la sistematicidad que permite la construcción histórica del reconocimiento del desarrollo deportivo de las personas con discapacidad y el deporte paralímpico en Lobería, se presenta la 5º edición del Festival de Atletismo Inclusivo. Sosteniendo su potencial comoencuentro interdistrital, en que el aprendizaje compartido posiciona a la inclusión en el centro de la escena y extiende los límites geográficos de localidades representadas para la multiplicación de su experiencia,
+QUE, organizado por Profesores de Educación Física en interacción con otros profesionales afines, esta nueva instancia busca profundizar los espacios de reflexión y revisión del accionar docente. Una vez más, el CEF 43 y la Dirección de Deportes de Lobería se proponen, juntos, desarrollar una experiencia de alta calidad educativa para la construcción social de sus protagonistas y equipos,
+QUE, este proyecto tuvo su primera instancia en 2017 y se ha enriquecido potencialmente año tras año por constituir un espacio de construcción de conocimiento sobre el desarrollo deportivo y de formación de docentes que genera tejido social. La participación de todos y todas en estos espacios permite la multiplicación y socialización de saberes producidos,
+QUE, el cronograma propuesto para 2021, potencia la especificidad de los CEF y recupera el Proyecto de Educación Física del Distrito de Lobería (Educativo y de Deportes Municipal) incorporando experiencias de prácticas de caminata grupal en las sierras, escalada y Rapel; Juegos, prácticas de Kayakismo en el ambiente natural (ecosistema río y cascadas) y Kayak y prácticas en el ambiente natural con menor incertidumbre en el Parque Municipal Narciso,
+QUE, durante el jueves 21 y viernes 22 se conjugan presentaciones de Profesores, Profesionales y dirigentes de Nivel Paralímpico referidas a Enseñanza, entrenamiento, psicología, género, políticas y filosofía del deporte y educación inclusiva con clínicas y presentaciones de Futbol, Tenis y Tenis de mesa adaptados. Estos espacios de escucha, reconocimiento y reflexión conjunta pretenden favorecer la construcción de paradigmas sociales que permitan el acceso equitativo a los derechos enunciados.
+QUE, la última jornada consiste en un encuentro de ATLETISMO con la presencia de atletas paralímpicos
+QUE, en noviembre de 2017 se realizó la primera instancia, de características organizativas similares, en la que participaron 60 jóvenes de Lobería, Necochea, Quequén y La Dulce.
+QUE, en octubre de 2018 se realizó la segunda edición, de características organizativas similares en la que participaron 150 alumnos de Lobería, Necochea, San Cayetano, CEF de Mercedes, CEF de La Matanza, CEF Alem, Córdoba, CEF de Las Flores.
+QUE, en septiembre de 2019 se realizó la tercera edición, donde el desafío fue incorporar a este proyecto la semana de la inclusión. Se realizaron capacitaciones durante toda la semana con grandes especialistas y el broche final fue el festival deportivo con la participación de 150 chicos de diferentes puntos del país.
+QUE, en 2020, en modalidad virtual, el festival superó las fronteras geográficas, potenciando el intercambio de saberes específicos en conferencias, mesas redondas y entrevistas de profesionales,
+QUE, está destinado a Profesionales y estudiantes de Educación Física, Educación Especial, Fisioterapia y afines además de personas de la comunidad interesados en la temática,
+QUE, las características del evento son: Experiencias de prácticas deportivas en el ambiente, encuentro de charlas y capacitaciones por especialistas y encuentro deportivo de atletismo,
+POR ELLO, EL H. CONCEJO DELIBERANTE DE LOBERIA, de acuerdo a sus facultades, aprueba la siguiente:
+ORDENANZA
