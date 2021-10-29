@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Impútese a la Partida: “1110104000 Secretaría de Infraestructura, Obras y Servicios Públicos – 37 Dirección de Obras de Infraestructura – 75 Construcción de Cordón Cuneta – F. F. 132 De origen provincial” del Cálculo de Recursos y Presupuesto de Gastos vigente.
