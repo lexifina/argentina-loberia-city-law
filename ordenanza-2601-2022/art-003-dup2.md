@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Impútese a la Partida: “1110104000 Secretaría de Infraestructura, Obras y Servicios Públicos – 27 Dirección de Vivienda – 69 Construcción 10 viviendas I.V.B.A. – F.F. De origen provincial” del Cálculo de Recursos y Presupuesto de Gastos vigente.
