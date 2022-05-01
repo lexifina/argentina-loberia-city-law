@@ -1,0 +1,1 @@
+ARTICULO TERCERO: En todas las circunstancias o hecho que tengan lugar como consecuencia del funcionamiento del presente convenio, ambas instituciones mantendrán la individualidad y autonomía de sus respectivas estructuras técnicas y administrativas, no comprometiéndose aspectos patrimoniales.
