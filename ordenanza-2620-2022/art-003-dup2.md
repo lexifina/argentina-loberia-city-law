@@ -1,0 +1,1 @@
+ARTÍCULO 3º Los gastos que demande la aplicación del Contrato, serán imputados a la Partida: “1110102000 Secretaría de Gobierno – 28 Dirección de Educación y Juventud – 3.4.5.0. Capacitación” del Presupuesto de Gastos vigente.
