@@ -1,0 +1,1 @@
+ARTÍCULO 3º Los gastos que demande la aplicación del Contrato, serán imputados a la Partida: “1110101000 Unidad Intendente – 01.01. Conducción Política del Municipio – 3.5.5.0. Comisione s y Gastos Bancarios” del Presupuesto de Gastos vigente.
