@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Los gastos que demande la aplicación del Convenio serán imputados a la Partida: “111011000 Secretaría de Salud y Desarrollo Social – 29 Dirección de Desarrollo Social – 01 Conducción y Administración – 3.4.9.0. Otros Servicios – 4.3.6.0. Equipo para computación” del Presupuesto de Gastos vigente.
