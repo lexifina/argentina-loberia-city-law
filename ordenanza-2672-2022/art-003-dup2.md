@@ -1,0 +1,1 @@
+ARTÍCULO 3º Los gastos que demande la aplicación de los Convenios, serán imputados a la Partida: “1110102000 Secretaría de Gobie rno – 28 Dirección de Juve ntud y Educación – 3.4.5.0. Capacitación – 132 De Origen Provincial” del Presupuesto de Gastos vigente.
