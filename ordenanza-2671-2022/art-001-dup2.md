@@ -1,0 +1,2 @@
+ARTÍCULO 1º REGÍSTRASE Ad Referéndum del Honorable Concejo Deliberante el CONVENIO ESPECÍFICO celebrado entre la MUNICIPALIDAD DE LOBERÍA,
+representada por su INTENDENTE MUNICIPAL JUAN JOSÉ FIORAMONTI y la FACULTAD REGIONAL MAR DEL PLATA DE LA UNIVERSIDAD TECNOLÓGICA NACIONAL, representado por su Decano Normalizador ING. FERNANDO SCHOLTUS, con el fin de establecer las actividades, tareas, costos y demás responsabilidades para el dictado de la carrera Técnico Universitario en Programación.
