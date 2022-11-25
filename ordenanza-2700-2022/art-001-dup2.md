@@ -1,0 +1,1 @@
+ARTICULO 1º.- Aprobar la realización del “CONVENIO ESPECÍFICO ENTRE LA FACULTAD DE CIENCIAS EXACTAS Y NATURALES DE LA UNIVERSIDAD NACIONAL DE MAR DEL PLATA Y EL MUNICIPIO DE LOBERÍA”, para la realización de Práctica Profesional (PP) de la carrera de Bioquímica, que como Anexo se adjunta a la presente.
