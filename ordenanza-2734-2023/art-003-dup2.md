@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Impútese a la Partida: “1110104000 Secretaría de Infraestructura, Obras y Servicios Públicos – 32.01 Dirección de Mantenimiento Vial – 3.7.2.0. Viáticos” del Presupuesto de Gastos vigente.

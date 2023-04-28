@@ -1,0 +1,2 @@
+ARTÍCULO 1º REGÍSTRASE Ad-Referendum del Honorable Concejo Deliberante, el CONVENIO LEY
+13.010 celebrado entre la Municipalidad de Lobería, representada por el Sr. Intendente Municipal JUAN JOSÉ FIORAMONTI y la Dirección de Vialidad de la Provincia de Buenos Aires, representada por su Administrador General SR. HERNÁN Y ZURIETA, con el objeto de poner al servicio del municipio, en carácter de comodato una retroexcavadora, una camioneta y un camión, con su correspondiente equipista
