@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Impútese a la Partida: “1110110000 Secretaría de Salud y Desarrollo Social – 23.01 Dirección Hospital Municipal – 3.4.7.0. Servicio de hotelería” del Cálculo de Recursos y Presupuesto de Gastos vigente.
