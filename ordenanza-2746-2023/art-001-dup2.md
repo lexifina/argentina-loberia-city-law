@@ -1,0 +1,1 @@
+ARTICULO 1º ACEPTASE la RENUNCIA presentada por la Sra. Marisa Barrientos, D.N.I. N° 25.856.843 a la titularidad de vivienda construida sobre el lote perteneciente a la Operatoria Plan Familia Propietaria, ubicada en calle Curuchet N° 327 de Lobería.
