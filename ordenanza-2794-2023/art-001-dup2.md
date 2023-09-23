@@ -1,0 +1,2 @@
+ARTÍCULO 1.- REGÍSTRASE, Ad-Referéndum del Honorable Concejo Deliberante, el CONTRATO
+DE CESIÓN PRECARIA celebrado entre la Municipalidad de Lobería, representada por el Sr. Intendente Municipal JUAN JOSÉ FIORAMONTI, la Escuela de Educación Primaria para Adultos Nº 704, representada por la Directora Prof. VIVIANA MARCELA CANO, a fin de ceder en forma gratuita un aula y sanitarios que forman parte del inmueble ubicado en calle De Caso N° 13 de Lobería.
