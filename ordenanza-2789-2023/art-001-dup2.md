@@ -1,0 +1,2 @@
+ARTÍCULO 1º REGÍSTRASE, Ad Referendum del Honorable Concejo Deliberante el CONTRATO celebrado entre la Municipalidad de Lobería, representada por el Sr. Intendente Municipal JUAN JOSÉ FIORAMONTI y las Sras. GABRIELA RAQUEL VERGARA, D.N.I. N° 21.862.709 y MARÍA
+ALEJANDRA LEGUIZAMÓN, D.N.I. N° 20.586.756, con el objeto de ceder un inmueble, propiedad de Ferrosur Roca S. A. dado en comodato al municipio, ubicado en la Estación de Ferrocarril de Lobería, con el objeto de ser destinado exclusivamente a vivienda de ocupación familiar permanente.
