@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El gasto que demande la ejecución de la presente licitación será imputado a la Partida: “1110104000 Secretaría de Infraestructura, Obras y Servicios Públicos – 37 Dirección de Obras de Infraestructura – 53 Universidad 2da Etapa - 2.7.9.0. Caño…” del Presupuesto de Gastos vigente.

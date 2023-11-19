@@ -1,0 +1,1 @@
+ARTÍCULO 1.- REALÍZASE la LICITACIÓN PRIVADA Nº 20/23 a los efectos de solicitar cotización a comerciantes proveedores del ramo, con el fin de adquirir materiales destinados a la ejecución del tendido de cañerías del sistema de calefacción y acondicionadores de aire Multisplit para el Centro Universitario de Lobería.
