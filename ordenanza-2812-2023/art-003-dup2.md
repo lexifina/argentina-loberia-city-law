@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Los gastos que demande la aplicación del Contrato, serán imputados a la Partida:“1110104000 Secretaría de Infraestructura, Obras y Servicios Públicos – 37 Dirección de Obras de Infraestructura – 76 Desagüe Pluvial – 3.7.2.0. Viáticos y movilidad” del Presupuesto de Gastos vigente.
