@@ -1,0 +1,1 @@
+ARTÍCULO 3° Tomen conocimiento Contaduría, Dirección de Juventud y Educación, Oficina de Modernización y Tecnología, Asesoría Letrada y Honorable Concejo Deliberante. Dése al Registro de Decretos, cumplido, ARCHÍVESE
