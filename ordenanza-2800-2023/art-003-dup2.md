@@ -1,0 +1,1 @@
+ARTICULO 3º Notifíquese, tomen conocimiento Asesoría Letrada, División Patrimonio Municipal, Delegación Municipal de San Manuel, Dirección de Desarrollo Social y Honorable Concejo Deliberante. Dése al Registro de Decretos, cumplido, ARCHIVESE.
