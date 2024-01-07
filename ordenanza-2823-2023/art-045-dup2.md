@@ -1,0 +1,2 @@
+ARTÍCULO 45: La distribución podrá efectuarse según las reglamentaciones vigentes y se abonará:
+1) Por repartidor, por día……................................................................................ $ 00,00

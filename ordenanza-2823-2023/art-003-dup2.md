@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Las denominaciones de “Tasas”, “Derechos”, “Contribuciones” y
+“Gravámenes”, son genéricas y comprenden a estas y demás obligaciones de orden tributario que imponga la Municipalidad. Las normas tributarias municipales se consideran vigentes y, por lo tanto, obligatorias de acuerdo a lo dispuesto en el artículo 5° del Código Civil y Comercial. El medio de publicación oficial, sin perjuicio de otros que se dispongan reglamentariamente será el Boletín Oficial Municipal.
