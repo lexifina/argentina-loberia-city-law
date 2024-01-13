@@ -1,0 +1,1 @@
+ARTÍCULO 1º RECONOZCASE y ABÓNENSE las diferencias salarias reclamadas y no prescriptas (dos años) correspondientes a la agente municipal María Mercedes Eseyza, DNI N° 23.829.780, legajo N° 1.679, con más las sumas correspondientes a intereses calculados con la tasa de interés pasiva para plazos fijos a treinta (30) días del Banco de la Provincia de Buenos Aires.
