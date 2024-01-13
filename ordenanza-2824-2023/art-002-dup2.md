@@ -1,0 +1,3 @@
+ARTÍCULO 2º Notifíquese, tomen conocimiento, Dirección de Personal y Recursos Humanos, Dirección Administrativa del Sistema Municipal de Salud, Contaduría y Honorable Concejo Deliberante. Dése al Registro de Decretos, cumplido,
+ARCHIVESE.
+DECRETO 2476-23
