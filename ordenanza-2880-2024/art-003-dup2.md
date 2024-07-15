@@ -1,0 +1,1 @@
+ARTÍCULO 3° Los puntos indicados en los formularios estadísticos únicos labrados por los inspectores de tránsito municipales se encuentran indicados en el Anexo I que se agrega como archivo de trabajo.
