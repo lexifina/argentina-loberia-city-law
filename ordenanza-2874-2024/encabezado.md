@@ -1,0 +1,21 @@
+Ordenanza Nº2874-24
+Ordenanza Nº 2874-24
+Lobería, 28/06/2024
+VISTO:
+Lo dispuesto por los artículos 24, 25, 56, 107 y 108 de la Ley Orgánica de las Municipalidades, la Ordenanza N° 1.337/07; y
+CONSIDERANDO:
+QUE, a través de la Ordenanza N° 1.337/07 el Honorable Concejo Deliberante autorizó al Departamento Ejecutivo a transferir a título gratuito a favor de la Dirección General de Cultura y Educación de la Provincia de Buenos Aires, una Parcela ideal de aproximadamente Siete Mil Cuarenta Metros Cuadrados (7.040,00 m2), parte de una fracción mayor identificada catastralmente como Circunscripción I, Sección C, Quinta 96, Matrícula 061-11.679 del ejido urbano de la ciudad de Lobería;
+QUE, la parcela objeto de transferencia tiene como destino para la construcción del edificio del Centro de Formación Profesional N° 401 “Jesús Obrero” de esta ciudad;
+QUE, en el artículo 3° de la citada disposición se impone al donatario el cargo de edificación con un plazo de cinco (05) años a contar a partir de su sanción, cumplido el cual, sin concretarse la construcción del establecimiento educativo, el dominio retrotraerá al donante;
+QUE, realizados los procedimientos pertinentes dicha obra fue adjudicada a la firma RR Construcciones, celebrándose a tal fin el Contrato con la Asociación Cooperadora del Centro de Formación Profesional N° 401 el 26 de diciembre de 2011, estableciendo en el instrumento legal un plazo de ciento ochenta (180) días contados a partir del Acta de Inicio la cual se suscribió el 19 de abril de 2012, dando comienzo a los trabajos;
+QUE, con fecha 03 de julio de 2013 se hacen presente en el Consejo Escolar de Lobería los Sres. Robledo y Roumec de la empresa contratada, ante la requisitoria del Inspector de la Dirección Provincial de Infraestructura Escolar Arq. Fernando Palestini a fin de analizar la situación que se estaba produciendo del considerable atraso en el pago de los certificados de obra emitidos y que la empresa contratada hizo abandono de la obra retirando a todo su personal;
+QUE, se informa que el 12 de junio de 2013 depositaron en la cuenta corriente de la entidad el valor correspondiente al certificado N° 3 y se adeudan al 13 de julio de 2013 dos certificados;
+QUE, ante la situación, el Arq. Palestini considera dos opciones a seguir, que la empresa reinicie los trabajos hasta su conclusión o hasta donde se puedan realizar y si no recibe los pagos solicite la regularización a través de carta documento o realice un descargo señalando la imposibilidad de reiniciar las tareas atento a que el importe abonado no significa la regularización de la deuda;
+QUE, el inspector sugiere además la consulta legal por parte de la empresa, opción rechazada por la firma, en virtud de significar gastos extras y verse perjudicado en presentarse en futuras obras que dependan del organismo provincial;
+QUE, los Sres. Robledo y Roumec reconocen que hicieron abandono de la obra a lo que Palestini requiere la presentación el 08 de julio de 2013 una respuesta por escrito en el Consejo Escolar Lobería, donde se dará cuenta de su recepción, situación no cumplida por parte de la empresa;
+QUE, con fecha 19 de julio de 2013 se presentan los integrantes de la asociación cooperadora quienes manifiestan sus inquietudes sobre la obra del edificio e informan el envío de una carta documento a la empresa constructora para que reinicie los trabajos a lo que responde intimando al pago del certificado N° 3;
+QUE, en consideración a las indicaciones de los arquitectos Distrital y Regional de Infraestructura Escolar Palestini y Alustiza se cursó una segunda carta documento a fin de intimar el reinicio de los trabajos paralizados, en un plazo de cuarenta y ocho (48) horas hábiles y en caso de negativa se fijarán día y hora de toma de posesión de la obra en cuestión;
+QUE, habiendo transcurrido el plazo y no obteniendo respuesta favorable, con fecha 12 de agosto de 2013 se procedió a tomar posesión de la parcela en cuestión;
+QUE, por todo ello y en virtud a lo establecido en el artículo 3° de la Ordenanza N° 1.337/13, el dominio del bien inmueble objeto de donación debe retrotraerse al donante;
+Por todo ello, el HONORABLE CONCEJO DELIBERANTE, de acuerdo a las atribuciones que le son propias, aprueba la siguiente:
+ORDENANZA
