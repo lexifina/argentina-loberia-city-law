@@ -1,0 +1,1 @@
+ARTÍCULO 3º Los gastos que demande la aplicación de los Convenios, serán imputados a la Partida: “1110110000 Secretaría de Salud y Desarrollo Social – 23.01 Dirección Hospital Municipal” del Presupuesto de Gastos vigente.
