@@ -1,0 +1,1 @@
+ARTICULO 4º Los conductores de obra con la autorización del Director de Obra son los únicos autorizados a suspender las tareas en la obra por razones climáticas, causas fortuitas o de fuerza mayor que así lo aconsejen. Los beneficiarios que suspenden las tareas por propia decisión serán registrados como ausentes.

@@ -1,0 +1,1 @@
+ARTICULO 3º Los beneficiarios o, un integrante del grupo familiar, deberá cumplir con el tiempo de trabajo mínimo obligatorio de setenta y cinco (75) horas mensuales durante todo el lapso que duren las construcciones, dentro de los turnos de obra autorizados de acuerdo a lo establecido en el artículo 9° con un mínimo de tres (03) horas continuas por turno diariamente.

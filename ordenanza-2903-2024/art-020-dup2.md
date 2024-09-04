@@ -1,0 +1,1 @@
+ARTÍCULO 20° Toda vacante que se produzca por expulsión o abandono del beneficiario titular, determinará el ingreso al programa del suplente correspondiente seleccionado de la nómina de beneficiarios suplentes, conforme al puntaje que haya obtenido.

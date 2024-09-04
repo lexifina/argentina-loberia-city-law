@@ -1,0 +1,4 @@
+ARTICULO 12º Solo en caso de enfermedad, muerte o causa debidamente justificada, el beneficiario o sus
+derechohabientes podrán solicitar su reemplazo definitivo o transitorio por un miembro apto de su familia, el cual
+deberá cumplir con este reglamento y se hará pasible de las sanciones correspondientes por cada falta e incumplimiento en que incurriere. En el mismo caso, podrá computársele a título de excepción, la donación de horas que pudieran hacerle los demás componentes del grupo. Para ello, los donantes establecerán un plan de asistencia conjuntamente con el Director de Obra de manera tal que, encuadrándose dentro de las posibilidades de cada uno no afecte a las horas de trabajo propias, ni al desarrollo armónico de la obra. Establecido el plan de obra donado, este deberá ser cumplido.
+DE LAS REUNIONES

@@ -1,0 +1,6 @@
+ARTICULO 1° Las personas que hayan sido seleccionadas en conformidad con las condiciones establecidas en la normativa aplicable al “Programa Municipal de Autoconstrucción en el Partido de Lobería”, en adelante se denominarán “BENEFICIARIOS” o “PREADJUDICATARIOS”. Los mismos, aportarán su esfuerzo propio y ayuda mutua, en la mano de obra para las construcciones o en cualquier otra tarea que sea asignada y estarán sujetos a su incorporación hasta la adjudicación definitiva de las viviendas, de acuerdo a lo preceptuado en la Ordenanza de la cual forma parte el presente Reglamento, a:
+Proceder de manera conjunta y solidaria a la construcción de las viviendas de acuerdo a proyectos realizados por la Municipalidad, que se edificarán con la financiación y bajo la Dirección y asesoramiento de la misma, en los terrenos que ésta disponga para tal fin.
+Aceptar las modificaciones a los planos y programas de realización que efectúe la Municipalidad cuando lo considere necesario.
+Destinar las viviendas, para uso personal del beneficiario y su grupo familiar, una vez que sean adjudicadas, las cuales deberán ser únicas y de ocupación permanente.
+Aceptar las cláusulas impuestas por este Reglamento,
+DEL EQUIPO TECNICO
