@@ -1,0 +1,1 @@
+ARTICULO 1.- ADJUDICASE, Ad Referéndum del Honorable Concejo Deliberante, la LICITACION PRIVADA Nº 09/24, ordenada por Decreto Nº 492/24, para comprar ladrillos huecos destinados a la construcción de 32 viviendas en Lobería, en el marco de la Operatoria “Programa Bonaerense II – Solidaridad con municipios”.
