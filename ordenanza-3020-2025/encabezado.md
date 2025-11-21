@@ -1,0 +1,20 @@
+Ordenanza Nº3020-25
+Ordenanza Nº 3020-25
+Lobería, 07/11/2025
+VISTO:
+Lo dispuesto por los artículos 24, 27 Incs.9 de la Ley Orgánica de las Municipalidades; y la Ley Provincial N° 15.528 “Ley de Inclusión para personas con TEA” que modifica la Ley Provincial N° 15.035, y
+CONSIDERANDO:
+Que, a través de la Ley Provincial 15.035 sancionada el 10 de mayo de 2018, la Honorable Cámara de Diputados y la Honorable Cámara de Senadores de la Provincia de Buenos Aires, adhirieron a la Ley Nacional N.º 27.043 sobre el abordaje integral e interdisciplinario de las personas con Trastornos del Espectro Autista (TEA),
+Que, el Trastorno del Espectro Autista (TEA) es una condición del neurodesarrollo que afecta principalmente la comunicación, la interacción social y la conducta, y que no debe ser entendido como una enfermedad, sino como una forma diversa de percibir y habitar el mundo,
+Que, según la Organización Mundial de la Salud, 1 de cada 100 niños en el mundo está dentro del espectro autista, y que, en nuestro país, si bien no existen aún estadísticas oficiales precisas, existe un amplio consenso entre profesionales y organizaciones de familias en torno a la necesidad urgente de políticas públicas activas,
+Que, una de las principales barreras que enfrentan las personas con TEA es la incomprensión del entorno, muchas veces saturado de estímulos sensoriales, lenguaje ambiguo o señales de difícil interpretación, lo cual refuerza la necesidad de herramientas comunicacionales accesibles,
+Que, recientemente con fecha 24 de junio de 2025, se modifica la Ley 15035 mediante la Ley Provincial número 15.528, donde la Provincia se compromete a implementar políticas públicas concretas orientadas a mejorar la calidad de vida de las personas con TEA y sus familias, a través de acciones específicas tanto en el ámbito sanitario como en el comunicacional. Esta Ley declara a la Provincia como “Provincia de Comunicación Amigable de las Personas con TEA” y a los efectos de la promoción de la comunicación inclusiva, crea un Registro Oficial de Pictogramas, que funcionará como herramienta normativa y de accesibilidad en todo el territorio provincial,
+Que, los pictogramas (recursos visuales basados en símbolos, imágenes y letras) constituyen un componente esencial de los sistemas de Comunicación Aumentativa y Alternativa (CAA), facilitando la comprensión del entorno para personas con TEA y otras condiciones que afectan el lenguaje o la cognición,
+Que, dichos pictogramas, por su claridad y universalidad, resultan fundamentales para garantizar la autonomía, reducir la ansiedad y promover la accesibilidad cognitiva en espacios públicos y privados,
+Que, la nueva Ley prevé la implementación obligatoria de estos recursos en todas las dependencias públicas provinciales, al tiempo que los pone a disposición de entidades privadas que voluntariamente deseen sumarse a una comunicación accesible e inclusiva,
+Que, se establece, asimismo, que el Poder Ejecutivo deberá reasignar las partidas presupuestarias necesarias para garantizar la plena ejecución de esta normativa, mientras que las obras sociales y prepagas tendrán un plazo de 120 días para incorporar las prestaciones específicas previstas,
+Que, implementar pictogramas en espacios públicos como escuelas, hospitales, centros de salud, oficinas estatales y estaciones de transporte no sólo constituye una buena práctica, sino una política de inclusión efectiva que garantiza el acceso a derechos básicos,
+Que, la norma invita expresamente a los municipios bonaerenses a adherir voluntariamente a estas disposiciones, favoreciendo una implementación territorial más equitativa y extendida,
+Que, este tipo de iniciativas promueve el derecho a comprender, a participar y a no ser excluido por una forma diferente de procesar la realidad, y representa un paso fundamental hacia la construcción de una sociedad que valore la diversidad, la empatía y garantice la accesibilidad,
+POR TODO ELLO, EL HONORABLE CONCEJO DELIBERANTE, en uso de las atribuciones que le son propias, aprueba la siguiente:
+ORDENANZA
