@@ -1,0 +1,2 @@
+ARTÍCULO 10°: Dispóngase que en caso de dar curso favorable a los trámites y solicitudes previstos en el Artículo 9° de la presente, constatada la condición de deudor alimentario inscripto, la autoridad correspondiente deberá informar al juzgado interviniente dentro de los 10 días hábiles a efectos de que el mismo tome las medidas correspondientes al estado del proceso.-
+DE LAS RESTRICCIONES SIMBÓLICAS

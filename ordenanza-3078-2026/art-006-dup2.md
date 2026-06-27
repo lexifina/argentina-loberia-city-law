@@ -1,0 +1,1 @@
+ARTÍCULO 6°.- El informe de “libre de deuda registrada” expedido por la Asesoría Letrada o el área que en el futuro la reemplace en el desarrollo de sus funciones se exigirá a todos los proveedores municipales para su inscripción como tal y previo al libramiento de las órdenes de pago.

@@ -1,0 +1,1 @@
+ARTÍCULO 13°: Adhiérase el Municipio de Lobería a la Ley Provincial N.º 13.074 y a sus modificatorias introducidas por la Ley N.º 15.520, referidas al funcionamiento y alcance del Registro de Deudores Alimentarios Morosos.-

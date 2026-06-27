@@ -1,0 +1,1 @@
+ARTÍCULO 7°.- En cualquiera de los casos indicados en los precedentes Arts. 5° y 6°, si se tratare de personas jurídicas, se exigirá el informe correspondiente del “libre deuda registrada” a sus directivos y responsables.

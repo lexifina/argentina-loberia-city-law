@@ -1,0 +1,6 @@
+ARTÍCULO 12°: Instrúyase al Departamento Ejecutivo Municipal a promover campañas de difusión, sensibilización y formación en relación al deber alimentario, al funcionamiento del Registro de Deudores Alimentarios Morosos y su rol como herramienta de equidad, protección de derechos y corresponsabilidad y a las instancias disponibles para el acceso a la asesoría y patrocinio legal gratuito, teniendo en cuenta los siguientes objetivos:
+Articular con la Mesa Local Intersectorial para la Prevención y Atención Integral de la Violencia Familiar y por Razones de Género, Juntas Vecinales y otras organizaciones de la sociedad civil con anclaje territorial y con organismos de los distintos niveles y estamentos del Estado vinculados al abordaje de las temáticas mencionadas;
+Generar espacios de formación orientados a la comunidad en general y en particular a funcionarios/as del Poder Ejecutivo y del Poder Legislativo y trabajadores/as que se desempeñan en las distintas dependencias del Estado Municipal.
+Garantizar la disponibilidad de material informativo, con lenguaje claro y accesible, sobre los aspectos mencionados en todas las dependencias del Estado Municipal así como en la página web y redes sociales oficiales del Municipio;
+Implementar toda otra acción que se considere a los efectos de dar cumplimiento al presente Artículo.-
+DISPOSICIONES FINALES

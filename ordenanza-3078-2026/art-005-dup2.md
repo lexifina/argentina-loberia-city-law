@@ -1,0 +1,1 @@
+ARTÍCULO 5°: El Departamento Ejecutivo, no dará curso a los siguientes trámites o solicitudes sin el informe correspondiente con el “libre deuda registrada”. A) Habilitaciones para la apertura de comercios y/o industrias; B) Concesiones, permisos y/o licitaciones y C) Solicitud de la licencia de conducir o su renovación.

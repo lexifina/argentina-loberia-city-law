@@ -1,0 +1,1 @@
+ARTÍCULO 8°.- Todas aquellas personas que ocupen cargos políticos y cuya designación dependa del Departamento Ejecutivo deberán tener al momento de la asunción del cargo el mencionado libre deuda, el cual deberá ser renovado en forma anual mientras dure su cargo.

@@ -1,0 +1,2 @@
+ARTÍCULO 3°: Es deudor alimentario toda persona obligada al pago de la obligación alimentaria por sentencia firme, convenio debidamente homologado o resolución que establezca alimentos provisorios que incumpliera con el pago de una cuota provisoria o definitiva, una vez intimado y si no hubiere podido demostrar su cumplimiento, debiendo ser inscripto inmediatamente por orden judicial y a solicitud de parte mediante oficio al Registro de Deudores Alimentarios Morosos.
+DEL PEDIDO DE INFORMES
