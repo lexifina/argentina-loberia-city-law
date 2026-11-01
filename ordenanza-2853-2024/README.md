@@ -1,0 +1,10 @@
+# Ordenanza 2853/2024: AUTORIZASE al Departamento Ejecutivo a ejecutar la obra de construcción de la ciclovía sobre el acceso “Eva Duarte de Perón”.
+
+Ordenanza 2853/2024 · 1 versions, from 2024-05-11 (latest in force: 2024-05-11) · <https://sibom.slyt.gba.gob.ar/bulletins/10508/contents/2047807>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

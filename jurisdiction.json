@@ -1,11 +1,11 @@
 {
-  "path": "ar-b-loberia",
-  "code": "AR-B-LOBERIA",
-  "name": "Lobería",
-  "level": "municipality",
-  "parent": "ar-b",
-  "repo": "https://github.com/lexifina/argentina-loberia-city-law",
-  "build": "built: municipal ordinances (6 ordinances, 6 versions) from https://sibom.slyt.gba.gob.ar/cities/73",
-  "language": "es",
-  "sources": 1
+ "path": "ar-b-loberia",
+ "code": "AR-B-LOBERIA",
+ "name": "Lobería",
+ "level": "municipality",
+ "parent": "ar-b",
+ "repo": "https://github.com/lexifina/argentina-loberia-city-law",
+ "build": "built: municipal ordinances (963 ordinances, 963 versions) from https://sibom.slyt.gba.gob.ar/cities/73; complete catalogue considered, 69 records excluded",
+ "language": "es",
+ "sources": 1
 }

@@ -1,0 +1,11 @@
+# Ordenanza 2433/2020: EL Honorable Concejo Deliberante de Lobería DECLARA de INTERÉS MUNICIPAL, a los efectos de su financiación por medio del Fondo Municipal de Promoción y Estímulo de Emprendimientos Productivos FOMEPRO, la ampliación en la
+
+Ordenanza 2433/2020 · 1 versions, from 2020-09-03 (latest in force: 2020-09-03) · <https://sibom.slyt.gba.gob.ar/bulletins/4116/contents/1481314>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Artículo 4 | [art-004.md](art-004.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
