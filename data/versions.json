@@ -1,0 +1,89 @@
+{
+ "country": "AR-B-LOBERIA",
+ "acts": [
+  {
+   "slug": "ordenanza-2129-2017",
+   "short": "Ordenanza 2129/2017",
+   "title": "Ordenanza 2129/2017: AUTORIZASE al Departamento Ejecutivo Municipal a ACEPTAR la única propuesta considerada oferta por reunir los requisitos exigidos según la legislación vigente, y ser conveniente a los intereses económicos de la Municipal",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/325/contents/1157386",
+   "versions": [
+    {
+     "from": "2017-10-07",
+     "units": 3,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/325/contents/1157386",
+     "sha256": "cb030fcd67d26da05b20a33f70bc29d9b9b0fcbc55ca62af372f1dca2ff0e82a"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-2131-2017",
+   "short": "Ordenanza 2131/2017",
+   "title": "Ordenanza 2131/2017: EL Honorable Concejo Deliberante de Lobería DECLARA de INTERÉS MUNICIPAL, a los efectos de su financiación por medio del Fondo Municipal de Promoción y Estímulo de Emprendimientos Productivos FOMEPRO, el proyecto “HERRER",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/325/contents/1157407",
+   "versions": [
+    {
+     "from": "2017-10-07",
+     "units": 6,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/325/contents/1157407",
+     "sha256": "432edb4316fb17ced45d74d6b93b8a8eede20144aec5a9cde158b4a842225604"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-2138-2017",
+   "short": "Ordenanza 2138/2017",
+   "title": "Ordenanza 2138/2017: CRÉASE en el ámbito del Partido de LOBERIA el FONASAL “FONDO DE ASISTENCIA EN SALUD”.-",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/385/contents/1162471",
+   "versions": [
+    {
+     "from": "2017-10-15",
+     "units": 10,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/385/contents/1162471",
+     "sha256": "86b0573c1c41af4089b3cc92b6a4a9adf6f00b290e86fac861b17206c30be97a"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-2359-2019",
+   "short": "Ordenanza 2359/2019",
+   "title": "Ordenanza 2359/2019: ADHIÉRASE el Municipio de Lobería a la Ley Provincial Nº 15.134 de CAPACITACIÓN OBLIGATORIA EN LA TEMÁTICA DE GÉNERO Y VIOLENCIA CONTRA LAS MUJERES, para todas las personas que se desempeñen en la función pública en el á",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/2680/contents/1377831",
+   "versions": [
+    {
+     "from": "2019-10-06",
+     "units": 6,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/2680/contents/1377831",
+     "sha256": "e360d5f4767bf0ef4b75c55b2a82bf360052c91edf73a1b7426fb7fcc7d235f7"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-2716-2022",
+   "short": "Ordenanza 2716/2022",
+   "title": "Ordenanza 2716/2022: EL Honorable Concejo Deliberante de Lobería DECLARA de INTERÉS MUNICIPAL, a los efectos de su financiación por medio del Programa Municipal de Promoción y Estímulo a Micro, Pequeños y Medianos Emprendimientos Productivos",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/7889/contents/1812719",
+   "versions": [
+    {
+     "from": "2022-12-25",
+     "units": 7,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/7889/contents/1812719",
+     "sha256": "c990ef66972482eeaae227165d21a42edc68eda1dbee8b2e1efba76d20126f18"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-3030-2025",
+   "short": "Ordenanza 3030/2025",
+   "title": "Ordenanza 3030/2025: APRUÉBASE la ORDENANZA FISCAL para el año 2026 que como ANEXO I forma parte de la presente.",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/14033/contents/2328886",
+   "versions": [
+    {
+     "from": "2026-01-04",
+     "units": 5,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/14033/contents/2328886",
+     "sha256": "7ee1afec561dd75176518e762616a2fb7c3ca61281483ae33386778c81e7f730"
+    }
+   ]
+  }
+ ]
+}
